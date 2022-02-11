@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @yaffa23
 - 👀 I’m interested in Philosophy 
 - 🌱 I’m currently learning a lifetime learner
-- 💞️ I’m looking to collaborate on this forum
+- 💞️ I’m looking to collaboration on this forum
 - 📫 How to reach me is to contact me via IG, Line, and, Telegram
 
 <!---
